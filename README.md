@@ -1,5 +1,5 @@
 ### Hi there 👋
 
 <p align="center">
-  <img src="https://media.giphy.com/media/3NtY188QaxDdC/source.gif" />
+  <img src="https://thumbs.gfycat.com/ImpressiveMassiveHoneyeater-max-1mb.gif" />
 </p>
